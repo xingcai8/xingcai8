@@ -1,4 +1,6 @@
-## Hi there 👋
+## 杏彩平台最新注册入口 👋
+
+地址： <https://xingcai8.github.io>
 
 <!--
 **xingcai8/xingcai8** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
